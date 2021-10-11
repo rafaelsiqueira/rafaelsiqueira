@@ -6,7 +6,6 @@
 # Sobre mim / About me
 - 😄  &nbsp;&nbsp; Ele/dele/He/Him
 - 👩‍👧‍👦  &nbsp;&nbsp; Pai de 2 / Father of two.
-- 📍  &nbsp;&nbsp; Bixxxxcoito
 - ⚽️  &nbsp;&nbsp; Flamengo
 - 📨  &nbsp;&nbsp; rafael@siqueira.net
   
